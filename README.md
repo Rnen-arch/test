@@ -1,2 +1,2 @@
-# test
-This is a first one 
+ struggling is part of the process
+ 
